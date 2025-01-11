@@ -2,7 +2,7 @@
 - 👀 I’m interested in innovation
 - 🌱 I’m currently learning Hawaiian
 - 💞️ I’m looking to collaborate on fun projects
-- 📫 How to reach me simmons.derek@gmail.com
+- 📫 How to reach me derek@flinthills.io
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm the lesser half of a pet therapy team with my best buddy, Jordy
 
